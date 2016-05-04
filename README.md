@@ -7,4 +7,4 @@ But when cult members and families are questioned within the compound,  the poli
 
 ---------
 
-This story was written in 2014. It is a nice, succinct short story that gave me an outlet for some anger.
+This story was written in 2014. It is a nice, succinct short story that gave me an outlet for some anger. I really need to start a more useful project.
